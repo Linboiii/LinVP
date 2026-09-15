@@ -1,2 +1,2 @@
 # LinVP
-buat vp vp aja
+hello lin peeeeeeeeeee
